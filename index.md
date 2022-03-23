@@ -26,6 +26,28 @@
 
 ![aloevera_oilbase_20220314](aloevera_oilbase_20220314.jpg)
 
+### 2022-03-20
+
+**Aloe Vera Pickle** 
+
+- Same as above recipe.
+- Tried with slightly more mustard oil and kalaunji.
+
+![aloevera_pickle_final_20220320](aloevera_pickle_final_20220320.jpg)
+
+----
+
+**Turmeric Pickle**
+
+- Fine slices of turmeric mixed with sendha salt, mustard oil, saunf, heeng, methi dana, ajvain (very little), til (sesame seeds), kalaunji, black pepper powder. 
+- Mixed thoroughly and put in Cheeni Mitti bowl with lid. 
+
+![turmeric_pickle_1_20220320](turmeric_pickle_1_20220320.jpg)
+
+![turmeric_pickle_2_20220320](turmeric_pickle_2_20220320.jpg)
+
+![turmeric_pickle_final_20220320](turmeric_pickle_final_20220320.jpg)
+
 ----
 
 
